@@ -1,5 +1,8 @@
 # GraphicDesignProjects
 My Graphic Design Projects
+****************************************************
+* ALFRED STREET BAPTIST CHURCH - DG 30 NEWSLETTERS *
+****************************************************
 - This template was created from scratch in Canva using prior newsletters as a guide.
 - Did a Google search for popular Bible verses so that we'd have a new one every month.
 - Look in the dg30news@gmail.com email account for new annoucements to be shared.  This email will come from Geri Tucker.
