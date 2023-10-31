@@ -22,3 +22,10 @@ ALFRED STREET BAPTIST CHURCH - DG 30 NEWSLETTERS
              - The Secretary
              - The Deacon In Training
 - At the very bottom of the 2nd page will be the group email address for members to submit inquires & updates.
+
+
+********************************************************
+Thumbnails For Halle Rae Bailey
+********************************************************
+- Created thumbnails for the Halle Rae Bailey YouTube motivational channel
+- Added images, texts and special effects via Canva
