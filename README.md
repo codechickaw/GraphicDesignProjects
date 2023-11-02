@@ -27,5 +27,5 @@ ALFRED STREET BAPTIST CHURCH - DG 30 NEWSLETTERS
 ********************************************************
 Thumbnails For Halle Rae Hunter
 ********************************************************
-- Created thumbnails for the Halle Rae Bailey YouTube motivational channel
+- Created thumbnails for the Halle Rae Hunter YouTube motivational channel
 - Added images, texts and special effects via Canva
